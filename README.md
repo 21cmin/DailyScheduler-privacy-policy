@@ -1,0 +1,1 @@
+# DailyScheduler-privacy-policy
